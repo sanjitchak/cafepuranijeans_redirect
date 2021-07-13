@@ -1,1 +1,0 @@
-# cafepuranijeans_redirect
